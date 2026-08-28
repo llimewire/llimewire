@@ -15,7 +15,7 @@
   $\textsf{{\color{#4EA142}🦴⠀ ー⠀ 𝘊𝘢𝘱'𝘯 𝘓𝘪𝘮𝘦𝘸𝘪𝘳𝘦⠀⠀⠀𓂃 ⠀⠀⠀any prns}}$</br>
   $\textsf{{\color{#7DD971}＃⠀ 18⠀y.o⠀⠀︵︵⠀⠀sys⠀.⠀asd⠀.⠀always⠀𝘪𝘸𝘤}}$</br>
   $\textsf{{\color{#A1E396}꒰⠀ selfshipper⠀⠀𓂃⠀⠀taken ⠀♡⠀⠀}}$ <a href="https://github.com/Ten-Mou">awesomedroid</a></br>
-  <a href="https://limewiire.straw.page/">strawpge</a>⠀⠀.⠀⠀<a href="https://x.com/CapnLimewire">twt</a>⠀⠀.⠀⠀<a href="https://capnlimewire.atabook.org/">sign ata</a></br></br>
+  <a href="https://limewiire.straw.page/">strawpge</a>⠀⠀.⠀⠀<a href="https://x.com/CapnLimewire">twt</a>⠀⠀.⠀⠀<a href="https://pacman.atabook.org/">sign ata</a></br></br>
   <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/0ebb2c66-a0c0-4342-90ee-baed55be2375" />
 
 <img width="98" height="55" alt="Image" src="https://github.com/user-attachments/assets/f7a4328d-b894-470a-b527-6a227f158401" />
