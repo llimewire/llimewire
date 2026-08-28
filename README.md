@@ -15,7 +15,24 @@
   $\textsf{{\color{#4EA142}🦴⠀ ー⠀ 𝘊𝘢𝘱'𝘯 𝘓𝘪𝘮𝘦𝘸𝘪𝘳𝘦⠀⠀⠀𓂃 ⠀⠀⠀any prns}}$</br>
   $\textsf{{\color{#7DD971}＃⠀ 18⠀y.o⠀⠀︵︵⠀⠀sys⠀.⠀asd⠀.⠀always⠀𝘪𝘸𝘤}}$</br>
   $\textsf{{\color{#A1E396}꒰⠀ selfshipper⠀⠀𓂃⠀⠀taken ⠀♡⠀⠀}}$ <a href="https://github.com/Ten-Mou">awesomedroid</a></br>
-  <a href="https://limewiire.straw.page/">strawpge</a>⠀⠀.⠀⠀<a href="https://x.com/CapnLimewire">twt</a>⠀⠀.⠀⠀<a href="https://capnlimewire.atabook.org/">sign ata</a></br>
+  <a href="https://limewiire.straw.page/">strawpge</a>⠀⠀.⠀⠀<a href="https://x.com/CapnLimewire">twt</a>⠀⠀.⠀⠀<a href="https://capnlimewire.atabook.org/">sign ata</a></br></br>
+  <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/0ebb2c66-a0c0-4342-90ee-baed55be2375" />
+
+<img width="98" height="55" alt="Image" src="https://github.com/user-attachments/assets/f7a4328d-b894-470a-b527-6a227f158401" />
+
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/a0cf1946-9e81-4e71-85e7-f50649aed139" />
+
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/6bdc898d-eaf9-4e74-9f14-acaa36114b99" />
+
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/df58566a-4a4a-4894-9fab-25c622da2275" />
+
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/43226956-1236-4aeb-9b25-e062b9c4d3bf" />
+
+<img width="99" height="57" alt="Image" src="https://github.com/user-attachments/assets/281239bf-b6b7-4afd-93fe-6430b27138ef" />
+
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/cd2d9e7c-f4a8-4c1e-a6bd-6c64f32adecc" />
+
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/1cdd9eff-7403-474b-af3d-bb0ae46aafc5" />
 </p>
 <img height="200" alt="Image" src="https://github.com/user-attachments/assets/20e16a3c-890a-4e56-b88f-17c985beb2d3" title="🍋‍🟩 graphic forged by @𝗹𝗹𝗶𝗺𝗲𝘄𝗶𝗿𝗲 . 𝙉𝙊 𝙋𝙄𝙍𝘼𝙏𝙄𝙉' !"/>
 <sup><sub>𝘱𝘶𝘵 𝘵𝘰𝘨𝘦𝘵𝘩𝘦𝘳 𝘣𝘺 𝘛𝘦𝘯-𝘔𝘰𝘶</sub></sup>
