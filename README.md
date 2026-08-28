@@ -32,7 +32,6 @@
 
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/cd2d9e7c-f4a8-4c1e-a6bd-6c64f32adecc" />
 
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/1cdd9eff-7403-474b-af3d-bb0ae46aafc5" />
 </p>
 <img height="200" alt="Image" src="https://github.com/user-attachments/assets/20e16a3c-890a-4e56-b88f-17c985beb2d3" title="🍋‍🟩 graphic forged by @𝗹𝗹𝗶𝗺𝗲𝘄𝗶𝗿𝗲 . 𝙉𝙊 𝙋𝙄𝙍𝘼𝙏𝙄𝙉' !"/>
 <sup><sub>𝘱𝘶𝘵 𝘵𝘰𝘨𝘦𝘵𝘩𝘦𝘳 𝘣𝘺 𝘛𝘦𝘯-𝘔𝘰𝘶</sub></sup>
